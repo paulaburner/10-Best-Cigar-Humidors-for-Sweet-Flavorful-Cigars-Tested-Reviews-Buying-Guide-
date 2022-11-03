@@ -1,0 +1,2 @@
+# 10-Best-Cigar-Humidors-for-Sweet-Flavorful-Cigars-Tested-Reviews-Buying-Guide-
+It’s okay to want to smoke a cigar once in a while, especially in a social setting. The thing about cigars is that they require maintenance and care. First-time and novice cigar smokers may not know, but humidity is necessary to keep cigars smelling and tasting their best. Here URL: https://bestforhomes.ca/best-cigar-humidifier.html
